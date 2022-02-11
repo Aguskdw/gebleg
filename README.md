@@ -1,0 +1,2 @@
+# gebleg
+Selalu berfikir
